@@ -25,7 +25,7 @@ Email me Now **nithinreddy.chinnolla@gmail.com** to get this Full Project Code, 
 
 ## How to Reach me :
 
-### Mail : vatshayan007@gmail.com 
+### Mail : nitihnreddy.chinnolla@gmail.com 
 
 ### WhatsApp: **+91 7032445200** (Helping 24*7)** 
 
